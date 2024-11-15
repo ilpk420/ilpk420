@@ -9,3 +9,5 @@
 空が白むのなら
 
 この戯言だって良いだろう
+
+I'm a php developer I am sorry
