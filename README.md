@@ -1,1 +1,11 @@
-![burning text reading "welcome to ilpk's github"](https://images.cooltext.com/5712249.gif)
+それでも人は続く
+
+呼吸をやめるまで
+
+その声を焦がし尽すまで
+
+あの娘の夢が覚め
+
+空が白むのなら
+
+この戯言だって良いだろう
